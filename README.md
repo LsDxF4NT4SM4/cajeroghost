@@ -1,2 +1,2 @@
 # cajeroghost
-GG
+GG te amo
